@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luigiiorio30
-- 👀 I’m interested in electric and electronic engineering
+- 👀 I’m interested in elettronic and programming things
 - 💞️ I’m looking to collaborate on lol nothing 
 
 <!---
